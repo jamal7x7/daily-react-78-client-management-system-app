@@ -1,1 +1,0 @@
-https://smudge.io/cnstaptest/
